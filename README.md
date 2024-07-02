@@ -1,0 +1,7 @@
+- 👋 Hi, I’m BATMAN
+- 👀 I’m interested in: BATMAN
+- 🌱 I’m currently learning: how to beat SUPERMAN
+- 💞️ I’m looking to collaborate on: Beating SUPERMAN and other Villains
+- 📫 How to reach me: Turn on the Bat Signal
+- 😄 Pronouns: BATMAN
+- ⚡ Fun fact: I am BATMAN
